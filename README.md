@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+我是SundayMorning
+遊戲名稱也是SundayMorning
+有一首歌也叫SundayMorning
+SundayMorning是星期日早上
+是充滿希望得的早上!
